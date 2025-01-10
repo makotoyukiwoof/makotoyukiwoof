@@ -4,7 +4,7 @@
 <p align="center">She/Her</p>
 <p align="center">i have adhd, keep that in mind when communicating w/me.</p>
 <p align="center">!refrain from copying my ponies, i work hard on them and dont appreciate people copying them!</p>
-<p align="center">𝓇𝑒𝑔𝒶𝓇𝒹𝒾𝓃𝑔 𝒾𝓃𝓈𝓅𝑜, 𝓅𝓁𝑒𝒶𝓈𝑒 𝒶𝓈𝓀!!</p>
+<p align="center">regarding inspo, please ask!!</p>
 
  ![mariposas](https://github.com/user-attachments/assets/75e20ac3-e231-47b9-a20d-3df0608a0f76)![tumblr_5ffa5b910a6323b5e3b04bba37b967ba_432d96e4_540](https://github.com/user-attachments/assets/f90de76d-929d-4aa0-adc1-b7dda7248c74)
 
