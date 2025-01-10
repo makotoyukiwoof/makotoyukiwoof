@@ -1,9 +1,9 @@
 <p align="center"> 🫧𓇼𓏲*ੈ✩‧₊˚🎐𝒞𝒾𝒻𝑒𝓃𝒾𝒶/𝒸𝒾𝒻 🫧𓇼𓏲*ੈ✩‧₊˚🎐</p>
 
 ![Untitled5_20250109190756](https://github.com/user-attachments/assets/81b73501-3ba7-4b1a-88a8-0acf4990bd9c)
-<p align="center">𝒮𝒽𝑒/ℋ𝑒𝓇</p>
-<p align="center">𝒾 𝒽𝒶𝓋𝑒 𝒶𝒹𝒽𝒹, 𝓀𝑒𝑒𝓅 𝓉𝒽𝒶𝓉 𝒾𝓃 𝓂𝒾𝓃𝒹 𝓌𝒽𝑒𝓃 𝒸𝑜𝓂𝓊𝓃𝒾𝒸𝒶𝓉𝒾𝓃𝑔 𝓉𝑜 𝓂𝑒.</p>
-<p align="center">!𝖗𝖊𝖋𝖗𝖆𝖎𝖓 𝖋𝖗𝖔𝖒 𝖈𝖔𝖕𝖞𝖎𝖓𝖌 𝖒𝖞 𝖕𝖔𝖓𝖎𝖊𝖘! 𝖎 𝖜𝖔𝖗k 𝖛𝖊𝖗y 𝖍𝖆𝖗d 𝖔𝖓 𝖙𝖍𝖊𝖒 𝖓 d𝖔𝖓'𝖙 𝖆𝖕𝖕𝖗𝖊𝖈𝖎𝖆𝖙𝖊 𝖕𝖊𝖔𝖕𝖑𝖊 𝖈𝖔𝖕𝖞𝖎𝖓𝖌 𝖙𝖍𝖊𝖒!</p>
+<p align="center">She/Her</p>
+<p align="center">i have adhd, keep that in mind when communicating w/me.</p>
+<p align="center">!refrain from copying my ponies, i work hard on them and dont appreciate people copying them!</p>
 <p align="center">𝓇𝑒𝑔𝒶𝓇𝒹𝒾𝓃𝑔 𝒾𝓃𝓈𝓅𝑜, 𝓅𝓁𝑒𝒶𝓈𝑒 𝒶𝓈𝓀!!</p>
 
  ![mariposas](https://github.com/user-attachments/assets/75e20ac3-e231-47b9-a20d-3df0608a0f76)![tumblr_5ffa5b910a6323b5e3b04bba37b967ba_432d96e4_540](https://github.com/user-attachments/assets/f90de76d-929d-4aa0-adc1-b7dda7248c74)
