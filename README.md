@@ -3,6 +3,7 @@
 ![Untitled5_20250109190756](https://github.com/user-attachments/assets/81b73501-3ba7-4b1a-88a8-0acf4990bd9c)
 <p align="center">She/Her</p>
 <p align="center">i have adhd, keep that in mind when communicating w/me.</p>
+<p align="center"> i also have trust issues, don't take it personally. it's not you, its me!
 <p align="center"> comfort characters:(main comf)makoto yuki/minato arisato(p3),ulquiorra cifer(bleach)
  <p align="center"> comfort animal: ducks 🦆
 
