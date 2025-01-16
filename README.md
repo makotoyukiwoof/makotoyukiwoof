@@ -1,6 +1,7 @@
 <p align="center"> 🫧𓇼𓏲*ੈ✩‧₊˚🎐Cifenia/Cif 🫧𓇼𓏲*ੈ✩‧₊˚🎐</p>
 
-![Untitled5_20250109190756](https://github.com/user-attachments/assets/81b73501-3ba7-4b1a-88a8-0acf4990bd9c)
+![Untitled5_20250115070428](https://github.com/user-attachments/assets/ccbdd7cf-1431-4ed9-9e75-7319af1e3fb7)
+
 <p align="center">She/Her</p>
 <p align="center">i have adhd, keep that in mind when communicating w/me.</p>
 <p align="center"> i also have trust issues, don't take it personally. it's not you, its me!
