@@ -4,7 +4,7 @@
 <p align="center">She/Her</p>
 <p align="center">i have adhd, keep that in mind when communicating w/me.</p>
 <p align="center"> i also have trust issues, don't take it personally. it's not you, its me!
-<p align="center"> comfort characters:(main comf)makoto yuki/minato arisato(p3),ulquiorra cifer(bleach)
+<p align="center"> no rp pls!(unless jokingly) i will ignore u, ty lol
  <p align="center"> comfort animal: ducks 🦆
 
 <p align="center">!refrain from copying my ponies, i work hard on them and dont appreciate people copying them!</p>
