@@ -17,8 +17,7 @@
 <p align="center">!refrain from copying my ponies, i work hard on them and dont appreciate people copying them!</p>
 <p align="center">regarding inspo, please ask!!</p>
 
-![401750502-75e20ac3-e231-47b9-a20d-3df0608a0f76](https://github.com/user-attachments/assets/1d8f18dc-fd5e-4dbe-bedf-035525596a47)
-<img width="463" height="875" alt="IMG_4498" src="https://github.com/user-attachments/assets/6810531f-9153-4dc8-a987-812a1ff1062a" />
+ ݁˖ . ݁⋆˚☆˖  ݁˖ . ݁⋆˚☆˖ <img width="463" height="875" alt="IMG_4498" src="https://github.com/user-attachments/assets/6810531f-9153-4dc8-a987-812a1ff1062a" />  ݁˖ . ݁⋆˚☆˖  ݁˖ . ݁⋆˚☆˖
  <-- I RIDE!!
 
 
