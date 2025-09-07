@@ -18,7 +18,7 @@
 <p align="center">regarding inspo, please ask!!</p>
 
 ![401750502-75e20ac3-e231-47b9-a20d-3df0608a0f76](https://github.com/user-attachments/assets/1d8f18dc-fd5e-4dbe-bedf-035525596a47)
-<img width="463" height="1075" alt="IMG_4498" src="https://github.com/user-attachments/assets/837d3c99-6984-44f4-ba94-90c088381469" />
+<img width="463" height="875" alt="IMG_4498" src="https://github.com/user-attachments/assets/6810531f-9153-4dc8-a987-812a1ff1062a" />
  <-- I RIDE!!
 
 
