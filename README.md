@@ -10,7 +10,7 @@
 
 <p align="center">She/Her</p>
 <p align="center"> agnes tachyon, silenze suzuka & fuji kiseki 
-<p align="center"> i also have trust issues, don't take it personally. it's not you, its me!
+<p align="center"> i have trust issues, don't take it personally. it's not you, its me!
 <p align="center"> no rp pls!(unless jokingly) i will ignore u, ty lol
  <p align="center"> i'm a veterinary technician in training!
 
