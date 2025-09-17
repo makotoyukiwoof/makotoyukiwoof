@@ -3,6 +3,10 @@
  ݁⋆˚☆˖ ˖ .  ݁˖ . ݁⋆˚☆˖ ˖ .  ݁˖ . ݁⋆˚☆˖ ˖ . ![how-do-i-get-deepseek-to-not-make-agnes-tachyon-speak-v0-g394oh8ckuff1](https://github.com/user-attachments/assets/e146a4dd-cfb0-42a0-bc14-78cb0bc0895d)
  ˖ . ݁⋆˚☆˖ ˖ .  ݁˖ . ݁⋆˚☆˖ ˖ . 
  
+
+ ݁⋆˚☆˖ ˖ . ![agnes-tachyon-uma-musume](https://github.com/user-attachments/assets/1a81c3bf-fcbd-43d5-b363-3748f0db0908)  ݁⋆˚☆˖ ˖ .
+
+
  
 
 
