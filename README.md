@@ -1,7 +1,7 @@
 <p align="center"> 𓇼𓏲*ੈ✩‧₊˚ Agnes Tachyon - Fuji Kiseki - Silenze Suzuka are my babies 𓇼𓏲*ੈ✩‧₊˚</p>
 
  ݁˖ . ݁⋆˚☆˖ ˖ .  ݁˖ . ݁⋆˚☆˖ ˖ .  ݁˖ . ݁⋆˚☆˖ ˖ . ![how-do-i-get-deepseek-to-not-make-agnes-tachyon-speak-v0-g394oh8ckuff1](https://github.com/user-attachments/assets/e146a4dd-cfb0-42a0-bc14-78cb0bc0895d)
- ˖ . ݁⋆˚☆˖ ˖ .  ݁˖ . ݁⋆˚☆˖ ˖ .  ݁˖ . ݁⋆˚☆˖ ˖ .
+ ˖ . ݁⋆˚☆˖ ˖ .  ݁˖ . ݁⋆˚☆˖ ˖ .   ݁⋆˚☆˖ ˖ 
  
  
 
