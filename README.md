@@ -11,7 +11,7 @@
 <p align="center">regarding inspo, please ask!!</p>
  
  
- ݁⋆˚☆˖ ˖ .  ݁˖ . ݁⋆˚☆˖ ˖ .  ݁˖ . ݁⋆˚☆˖ ˖ . ![agnes-tachyon-uma-musume](https://github.com/user-attachments/assets/3c3d855c-c728-4c58-915c-90fb79feb696)  ݁⋆˚☆˖ ˖ .  ݁˖ . ݁⋆˚☆˖ ˖ .  ݁˖ . ݁⋆˚☆˖ ˖ .
+ ݁⋆˚☆˖ ˖ .  ݁˖ . ݁⋆˚☆˖ ˖ .  ݁˖ . ݁⋆˚☆˖ ˖ . ⋆˚☆˖ ˖ .  ![agnes-tachyon-uma-musume](https://github.com/user-attachments/assets/3c3d855c-c728-4c58-915c-90fb79feb696) ⋆˚☆˖ ˖ .  ݁⋆˚☆˖ ˖ .  ݁˖ . ݁⋆˚☆˖ ˖ .  ݁˖ . ݁⋆˚☆˖ ˖ .
 
 
 
