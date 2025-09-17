@@ -7,8 +7,6 @@
  ݁⋆˚☆˖ ˖ .  ݁⋆˚☆˖ ˖ .  ݁⋆˚☆˖ ˖ .  ݁⋆˚☆˖ ˖ . ݁⋆˚☆˖ ˖ .![agnes-tachyon-uma-musume](https://github.com/user-attachments/assets/1a81c3bf-fcbd-43d5-b363-3748f0db0908)  ݁⋆˚☆˖ ˖ .  ݁⋆˚☆˖ ˖ .  ݁⋆˚☆˖ ˖ . ݁⋆˚☆˖ ˖ . ݁⋆˚☆˖
 
 
- ![maxresdefault](https://github.com/user-attachments/assets/dc2adf48-f540-4856-806c-78c73774c594)
-
 
 
 
