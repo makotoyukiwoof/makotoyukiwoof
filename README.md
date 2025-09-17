@@ -4,10 +4,10 @@
  ˖ . ݁⋆˚☆˖ ˖ .  ݁˖ . ݁⋆˚☆˖ ˖ . 
  
 <p align="center">she/her</p> 
-<p align="center"> i have trust issues, don't take it personally. it's not you, its me!
+<p align="center"> i have trust issues, don't take it personally. it's not you, its me
  <p align="center"> i'm a large/small animal Veterinary Technician in training
 <p align="center">don't copy my ponies, i dont wanna deal with ya'lls bs thanks lol </p>
-<p align="center">regarding inspo, please ask!! its rlly not that hard, ty! </p>
+<p align="center">regarding inspo, please ask!! its rlly not that hard, thanks </p>
 <p align="center"> i have social anxiety, i will trip up in ur presence. unless i already know you. </p>
  
  
