@@ -21,9 +21,3 @@
 <p align="center">don't copy my ponies, i dont wanna deal with ya'lls bs thanks lol </p>
 <p align="center">regarding inspo, please ask!!</p>
 
- ݁˖ . ݁⋆˚☆˖  ݁˖ . ݁⋆˚☆˖  ݁˖ . ݁⋆˚☆˖ <img width="463" height="875" alt="IMG_4498" src="https://github.com/user-attachments/assets/6810531f-9153-4dc8-a987-812a1ff1062a" />  ݁˖ . ݁⋆˚☆˖  ݁˖ . ݁⋆˚☆˖  ݁˖ . ݁⋆˚☆˖
- <-- I RIDE!!
-
-
-
-
