@@ -25,7 +25,7 @@
 
 <p align="center"> <img width="525" height="58" alt="image" src="https://github.com/user-attachments/assets/a74460b6-8d0c-482a-aeaa-be2c3404884d" /> </p>
 
- ![](https://komarev.com/ghpvc/?username=makotoyukiwoof&color=yellow)
+
 
 
 
