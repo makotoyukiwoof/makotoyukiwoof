@@ -10,14 +10,22 @@
  ![Nuu8YPLk7FdeJzebaW3pQn-1200-80](https://github.com/user-attachments/assets/6ea6a826-1d32-45b7-ad01-eb9e1a4163fd)
 
  
-<p align="center">she/her</p> 
-<p align="center"> i have trust issues, don't take it personally. it's not you, its me
- <p align="center"> i'm a large/small animal Veterinary Technician in training
-<p align="center">don't copy my ponies, i dont wanna deal with ya'lls bs thanks lol </p>
-<p align="center">regarding inspo, please ask!! its rlly not that hard, thanks </p>
-<p align="center"> i have social anxiety, i will trip up in ur presence. unless i already know you. </p>
- 
- 
+<p align="center"><img width="100" height="18" alt="image" src="https://github.com/user-attachments/assets/ae7dd596-aa4f-45e2-9a50-26a0e78221fd" />
+</p> 
+<p align="center"> <img width="434" height="18" alt="image" src="https://github.com/user-attachments/assets/dd6d3938-74eb-4e56-a714-f5b1cce3149d" />
+
+ <p align="center"> <img width="761" height="18" alt="image" src="https://github.com/user-attachments/assets/d199f0e8-2be8-4612-8574-053481d97b5c" />
+
+<p align="center"><img width="461" height="18" alt="image" src="https://github.com/user-attachments/assets/87970f1a-d404-4401-8a39-219fe469d7c7" />
+ </p>
+<p align="center"><img width="398" height="18" alt="image" src="https://github.com/user-attachments/assets/a00bc06b-f9ec-49bd-b401-f859b1b40ed2" />
+ </p>
+<p align="center"> <img width="584" height="18" alt="image" src="https://github.com/user-attachments/assets/6638db40-c042-4d13-a2ae-398f5dcffc92" />
+ </p>
+
+<p align="center"> <img width="525" height="58" alt="image" src="https://github.com/user-attachments/assets/a74460b6-8d0c-482a-aeaa-be2c3404884d" /> </p>
+
+ ![](https://komarev.com/ghpvc/?username=makotoyukiwoof&color=yellow)
 
 
 
