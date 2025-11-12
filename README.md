@@ -1,4 +1,8 @@
-<p align="center"> 𓇼𓏲*ੈ✩‧₊˚ Agnes Tachyon - Fuji Kiseki - Silenze Suzuka are my babies 𓇼𓏲*ੈ✩‧₊˚</p>
+<p align="center"> <img width="100" height="12" alt="text-1762986118463"src="https://github.com/user-attachments/assets/80a7448a-0f6e-429f-8933-34fbfc84dfd5" /></p>
+<p align="center"> <img width="100" height="31" alt="text-1762986908810" src="https://github.com/user-attachments/assets/62167960-7d13-4b1c-8dce-d18670d50f7d" /></p>
+
+<p align="center"><img width="100" height="12" alt="text-1762986140227" src="https://github.com/user-attachments/assets/62750604-e7c8-4669-9109-cffefe6dd82a" /> </p>
+
 
 <p align="center"> <img width="680" height="28" alt="text-1762985977449" src="https://github.com/user-attachments/assets/1241e511-6e6d-42a9-9f71-1b4bb591203a" /> </p>
 
