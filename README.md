@@ -1,5 +1,4 @@
-<p align="center"> <img width="121" height="28" alt="image" src="https://github.com/user-attachments/assets/01513c0e-34fa-48fa-8928-8e339c7bf52c" />
-
+<p align="center"> <img width="139" height="32" alt="image" src="https://github.com/user-attachments/assets/213140f7-87ac-43ba-bcfe-a2cc62fe4717" />
  </p>
 <p align="center"> <img width="100" height="31" alt="text-1762986908810" src="https://github.com/user-attachments/assets/62167960-7d13-4b1c-8dce-d18670d50f7d" /></p>
 
@@ -10,8 +9,8 @@
 </p>
 
 
-
-![ichigo-final-form-fvkjdfw1b2hswj78(1)](https://github.com/user-attachments/assets/3a1f69af-e112-4cb2-9615-96ebaabe000a)
+<p align="center"> <img width="400" height="475" alt="image" src="https://github.com/user-attachments/assets/028b26ea-6794-42ee-a064-456ae8337e71" />
+</p>
 
 <img width="2048" height="164" alt="tumblr_ab05c5dcf2933c0a9c5c7af15b41abbf_b25ab958_2048" src="https://github.com/user-attachments/assets/1ebee0c8-0681-457c-834c-5ce2d13aabb3" />
 
