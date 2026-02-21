@@ -11,8 +11,7 @@
 
 
 
-![75cdd01890cec27b3b1e862a73a64a50-1](https://github.com/user-attachments/assets/d8cadd7b-a061-4f1b-9c6c-108b38040580)
-![Bleach - Thousand-Year Blood War - Episode 21 - Ichigo Getsuga Jujishou](https://github.com/user-attachments/assets/02cee26f-4e16-4cee-9160-7208c54ac20b)![75cdd01890cec27b3b1e862a73a64a50-1](https://github.com/user-attachments/assets/bbdfddbb-926e-4f9e-9320-5909abb58439) 
+![ichigo-final-form-fvkjdfw1b2hswj78](https://github.com/user-attachments/assets/4c03877e-5d4f-4603-98ac-289abcf6c74a)
 
 
 <img width="2048" height="164" alt="tumblr_ab05c5dcf2933c0a9c5c7af15b41abbf_b25ab958_2048" src="https://github.com/user-attachments/assets/1ebee0c8-0681-457c-834c-5ce2d13aabb3" />
