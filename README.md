@@ -8,7 +8,7 @@
 <p align="center"> <img width="655" height="37" alt="image" src="https://github.com/user-attachments/assets/5480bb12-01a7-44bd-9d3e-b4d9bc38ca59" />
 </p>
 
-ੈ✩‧₊˚ .·:*¨¨* ≈☆≈ *¨¨*:·.![75cdd01890cec27b3b1e862a73a64a50-1](https://github.com/user-attachments/assets/d8cadd7b-a061-4f1b-9c6c-108b38040580)
+ੈ✩‧₊˚ .·:≪•◦ ❈ ◦•≫:·.![75cdd01890cec27b3b1e862a73a64a50-1](https://github.com/user-attachments/assets/d8cadd7b-a061-4f1b-9c6c-108b38040580)
 ![Bleach - Thousand-Year Blood War - Episode 21 - Ichigo Getsuga Jujishou](https://github.com/user-attachments/assets/02cee26f-4e16-4cee-9160-7208c54ac20b)![75cdd01890cec27b3b1e862a73a64a50-1](https://github.com/user-attachments/assets/bbdfddbb-926e-4f9e-9320-5909abb58439) ੈ✩‧₊˚
 
 
