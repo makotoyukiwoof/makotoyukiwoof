@@ -11,8 +11,7 @@
 
 
 
-![ichigo-final-form-fvkjdfw1b2hswj78](https://github.com/user-attachments/assets/4c03877e-5d4f-4603-98ac-289abcf6c74a)
-
+![ichigo-final-form-fvkjdfw1b2hswj78(1)](https://github.com/user-attachments/assets/3a1f69af-e112-4cb2-9615-96ebaabe000a)
 
 <img width="2048" height="164" alt="tumblr_ab05c5dcf2933c0a9c5c7af15b41abbf_b25ab958_2048" src="https://github.com/user-attachments/assets/1ebee0c8-0681-457c-834c-5ce2d13aabb3" />
 
