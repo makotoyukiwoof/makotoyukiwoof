@@ -5,9 +5,7 @@
 <p align="center">  </p>
 
 
-<p align="center"> <img width="655" height="37" alt="image" src="https://github.com/user-attachments/assets/5480bb12-01a7-44bd-9d3e-b4d9bc38ca59" />
-</p>
-
+<p align="center"> <img width="862" height="25" alt="image" src="https://github.com/user-attachments/assets/3071b570-3ad3-4cd1-8613-91c9ccb32c11" />
 
 <p align="center"> <img width="338" height="389" alt="16060998c19ab9ff744eece58be6761a(1)" src="https://github.com/user-attachments/assets/14bca859-21aa-4d8c-bc4c-9566186d8c55" />
 </p>
